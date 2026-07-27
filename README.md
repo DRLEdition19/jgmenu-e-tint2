@@ -1,1 +1,0 @@
-# jgmenu-e-tint2
